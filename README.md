@@ -1,0 +1,6 @@
+# 【运营级】NAC/全新原生APP /区块链/点对点交易/可对接交易所
+
+产品介绍：<br>此款软件为原生APP 精品运营级<br>交易手续费：会员首次注册实名后，交易手续费50％，复投一次交易手续费30％。<br>交易卡：会员首次交易需激活，需要购买一张交易卡（10天内免费），一次性激活，终身受益，激活后交易不受限，后期交易卡收费1元，交易卡可互转，交易卡购买找团队长或客服购买！<br>Nac健安币app赚钱说明<br>平台采用全新子母币运营机制独特的原生态体验，其中Pcc为NacAsia母币，发型总量100000000枚。Nac为子币，暂不发行，用来通过健康值算机智能产出子币Nac。<br>PCC母币可通过区块链浏览器查询，确保平台公正透明，双币模式母币40%不可卖出子币60%可卖出有效控制一次性动荡砸盘，卖出30％手续费。购买后复投质押40%母币，直接消除70%币量销毁+质押。<br>不限制卖出，比如两台一百币卖出60%子币，两台剩余40%母币剩余可上一台100币以此类推。<br>上车有序，卖出有度，循序渐进，收支平衡。<br>收起<br>Nac健安币app软件特色<br>1、帮助用户提供金融区块链服务，帮助用户快速操作更加简单。<br>2、让您提供服务，随时随低都能线操作，让您操作更快捷哦。<br>3、需要一定的手续费，让您线上交易更快捷，线上赚钱更加简单，轻松操作。<br>
+
+
+<p style="color: red;">源代码下载地址：<a href="https://mega-file.org/yyvG7" style="color: red;">https://mega-file.org/yyvG7</a></p><p style="color: red;"><img src="https://cdn-icons-png.flaticon.com/512/2111/2111646.png" alt="Telegram Icon" style="width: 16px; vertical-align: middle; margin-right: 5px;">Telegram:<a href="https://t.me/official_sourcecode" style="color: red;">@official_sourcecode</a></p>
